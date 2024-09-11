@@ -32,8 +32,8 @@ I'm always open to collaborating on exciting frontend projects and exploring new
 
 📫 How to reach me:
 
-    Email: youremail@example.com
-    LinkedIn: linkedin.com/in/yourprofile
+    Email: faridnuran4@gmail.com.com
+    LinkedIn: linkedin.com/in/faridnuran/
 
 ⚡ Fun Fact
 
